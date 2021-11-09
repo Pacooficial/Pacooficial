@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Pacooficial
+- 👀 I´m studying informatics
